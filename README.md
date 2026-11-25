@@ -14,6 +14,9 @@ Water & wastewater treatment · Natural coagulants · Nanocatalysis · Membrane 
 - Young Researcher Award (2022) · APSET-2020 qualified in Environmental Science
 - Gold medals for M.Sc. Environmental Science and Bachelor of Environmental Management (GITAM)
 
+### Open to opportunities
+I am available for **Assistant Professor / faculty positions** in Environmental Science, Environmental Engineering and Water Treatment Technology, and open to research collaborations. Reach me on [LinkedIn](https://www.linkedin.com/in/manoj-kumar-karnena-4501ba108).
+
 ### Find my work
 [Website](https://manojkumarkarnena-prog.github.io/) ·
 [ORCID](https://orcid.org/0000-0001-9241-2990) ·
