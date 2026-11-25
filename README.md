@@ -1,6 +1,6 @@
 # Dr. Manoj Kumar Karnena
 
-**Assistant Professor, Water Treatment Technology** – School of Engineering, Yesbud University, Lusaka, Zambia
+**Assistant Professor, Water Treatment Technology** – School of Engineering, Yesbud University, Lusaka, Zambia<br>
 Environmental scientist and researcher · Member, Royal Society of Chemistry
 
 I research sustainable water and wastewater treatment, especially **natural (green) coagulants** as alternatives to chemical coagulants. My Ph.D. (GITAM University, 2023) was on natural coagulants as a nature-based solution for water and wastewater treatment.
