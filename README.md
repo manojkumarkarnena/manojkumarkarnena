@@ -18,7 +18,7 @@ Water & wastewater treatment · Natural coagulants · Nanocatalysis · Membrane 
 I am available for **Assistant Professor / faculty positions** in Environmental Science, Environmental Engineering and Water Treatment Technology, and open to research collaborations. Reach me on [LinkedIn](https://www.linkedin.com/in/manoj-kumar-karnena-4501ba108).
 
 ### Find my work
-[Website](https://manojkumarkarnena-prog.github.io/) ·
+[Website](https://manojkumarkarnena.github.io/) ·
 [ORCID](https://orcid.org/0000-0001-9241-2990) ·
 [Google Scholar](https://scholar.google.com/citations?user=DbxTNHAAAAAJ) ·
 [Scopus](https://www.scopus.com/authid/detail.uri?authorId=57200333294) ·
