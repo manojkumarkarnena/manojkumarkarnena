@@ -15,7 +15,7 @@ Water & wastewater treatment · Natural coagulants · Nanocatalysis · Membrane 
 - Gold medals for M.Sc. Environmental Science and Bachelor of Environmental Management (GITAM)
 
 ### Open to opportunities
-I am available for **Assistant Professor / faculty positions** in Environmental Science, Environmental Engineering and Water Treatment Technology, and open to research collaborations. Reach me on [LinkedIn](https://www.linkedin.com/in/manoj-kumar-karnena-4501ba108).
+I am available for **Assistant Professor / faculty positions** in Environmental Science, Environmental Engineering and Water Treatment Technology, and open to research collaborations. Reach me on [LinkedIn](https://www.linkedin.com/in/manojkarnena).
 
 ### Find my work
 [Website](https://manojkumarkarnena.github.io/) ·
@@ -25,4 +25,4 @@ I am available for **Assistant Professor / faculty positions** in Environmental 
 [Web of Science](https://www.webofscience.com/wos/author/record/R-7790-2019) ·
 [Vidwan](https://vidwan.inflibnet.ac.in/profile/752672) ·
 [ResearchGate](https://www.researchgate.net/profile/Manoj_Kumar_Karnena) ·
-[LinkedIn](https://www.linkedin.com/in/manoj-kumar-karnena-4501ba108)
+[LinkedIn](https://www.linkedin.com/in/manojkarnena)
